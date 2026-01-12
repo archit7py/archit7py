@@ -1,5 +1,5 @@
 # 💫 About Me:
-currently working on aiml projects <br>looking to collaborate on big product base companies <br>looking for help with job in top companies <br>i am currently learning DSA and AIML<br>Ask me about AI news <br>fun fact :- I love cars and cash
+currently working on aiml projects <br>looking to collaborate on big product base companies <br>looking for job in top companies <br>i am currently learning DSA and AIML<br>Ask me about AI news <br>fun fact :- I love cars and cash
 
 
 ## 🌐 Socials:
